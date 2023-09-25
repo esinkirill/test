@@ -1,2 +1,2 @@
-# Hi there, I'm Kirill ![](https://media.tenor.com/y29vJ0OqaQ4AAAAi/typing-texting.gif) 
+# Hi there, I'm Kirill 👋:
 ### Writing test...
